@@ -1,1 +1,0 @@
-<title>Mabest Academy, Akure</title>
